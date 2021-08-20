@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **surajkkns@gmail.com**
 
-- ⚡ Fun fact **Thinking....**
+- ⚡ Fun fact **Always busy in thinking....**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
